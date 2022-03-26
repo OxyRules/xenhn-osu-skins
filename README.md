@@ -11,3 +11,9 @@ https://osuskins.net/skin/2zTO2Jc
 
 https://www.mediafire.com/folder/x8d4tq5j9u7p8
 ![1614321855_screenshot9399](https://user-images.githubusercontent.com/69603538/160230428-522a0280-f3d4-4606-a569-3ee471302eea.jpg)
+
+https://www.mediafire.com/file/4dgijk887a9hn3b/Pastel+Waves.osk/file
+![5kkAyqY](https://user-images.githubusercontent.com/69603538/160230498-43ac651c-c109-4976-b5da-56dcf6e04721.jpg)
+
+http://www.mediafire.com/file
+/bd9636fmaanu2jh/Prism_v3.osk/file![687474703a2f2f7075752e73682f6a535557532f636266643262633761652e706e67](https://user-images.githubusercontent.com/69603538/160230538-d53c8fca-137f-497e-8932-06096781be53.png)
