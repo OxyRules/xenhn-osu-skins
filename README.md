@@ -17,3 +17,15 @@ https://www.mediafire.com/file/4dgijk887a9hn3b/Pastel+Waves.osk/file
 
 http://www.mediafire.com/file
 /bd9636fmaanu2jh/Prism_v3.osk/file![687474703a2f2f7075752e73682f6a535557532f636266643262633761652e706e67](https://user-images.githubusercontent.com/69603538/160230538-d53c8fca-137f-497e-8932-06096781be53.png)
+
+https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O
+![687474703a2f2f7075752e73682f6b33324b422e706e67](https://user-images.githubusercontent.com/69603538/160230586-578cbf78-f6a2-470c-899e-4481afbf5dee.png)
+
+https://rektygon.s-ul.eu/r36TbuaU
+![68747470733a2f2f692e696d6775722e636f6d2f387458774450302e6a7067](https://user-images.githubusercontent.com/69603538/160230628-0c44fb4f-cd22-41ac-86f1-18bad754b2b4.jpg)
+
+https://mizaru.s-ul.eu/TNinjFkw
+![68747470733a2f2f6f73752e7070792e73682f73732f3131373735373735](https://user-images.githubusercontent.com/69603538/160230646-33a13929-0f37-4470-aee7-fb50e896c6ce.jpg)
+
+https://mega.nz/file/Fb5kGSZT#DhQ6vXx1L-0ndf6sr4yoNwE6kwnvjDA1PgK4Ev5GkLs
+![68747470733a2f2f6f73752e7070792e73682f73732f31343733333935372f36636365](https://user-images.githubusercontent.com/69603538/160230650-45b5a30b-a040-488f-bfd0-3b6de321930c.jpg)
